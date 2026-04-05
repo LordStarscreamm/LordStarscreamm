@@ -13,3 +13,6 @@ I'm 18 years old and im happily taken by my boyfriend, [Medkit ^_^!](https://git
 <div align="center">
   <img src="https://64.media.tumblr.com/8c64d720c32e18308135edb858106831/1e688ba14d189b26-af/s2048x3072/e46fa7b6a0debcf0eb9c5b886d45510b3133b47d.pnj">
 </div>
+
+
+let me tell u somethin bout a friendof ours name jimmy a major wise guy and a capowitha gambini but when he foudndout that theyd bewacking uncle cheech he take theboss he threw him from the 19 floor suite wasnt mucha long till the mobba wants him dead so jimmy had to go and talka to all the feds the feds they say they had to go and use him as a pawn so he ratted out his friewnds and moved2 suskachuwan FUGGET ABOUT IT! FUGGET ABOUUUTEETT OHH FUGGET ABOUT ETT
