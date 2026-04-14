@@ -3,7 +3,9 @@
 </div>
 
 <div align="center">
+    <img src="https://static.wikia.nocookie.net/danganronpa/images/0/03/Danganronpa_2_Island_Mode_Kazuichi_Soda_Pixel_Icon_%283%29.gif/revision/latest?cb=20170828172337">
    <img src="https://github.com/user-attachments/assets/58f53e27-3fdd-4e74-8e57-f7f81c65bce4" alt="Description">
+    <img src="https://static.wikia.nocookie.net/danganronpa/images/0/03/Danganronpa_2_Island_Mode_Kazuichi_Soda_Pixel_Icon_%283%29.gif/revision/latest?cb=20170828172337">
 </div>
 
 ## ABOUT ME !!
@@ -15,9 +17,11 @@ I'm rather shy, and I can be a bit avoidant at times, but please talk to me and 
 
 You can usually see me as these ponies!!
 
+<div align="center">
 <img width="309" height="326" alt="image" src="https://github.com/user-attachments/assets/bb7e68b0-5677-439d-935f-9fe3b929f0ee" />
 <img width="293" height="330" alt="image" src="https://github.com/user-attachments/assets/a40c9ad8-d295-4bfd-84e8-ea6def28343d" />
 <img width="250" height="330" alt="image" src="https://github.com/user-attachments/assets/a45bf946-f53e-4fbe-bb97-d2440679feff" />
+</div>
 
 ## BFYI
 
