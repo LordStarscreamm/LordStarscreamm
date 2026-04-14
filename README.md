@@ -72,4 +72,8 @@ let me tell u somethin bout a friendof ours name jimmy a major wise guy and a ca
 </div>
 
 <div align="center">
+<img src="https://s6.ezgif.com/tmp/ezgif-6f9edfb5774c51d3.gif">
+</div>
+
+<div align="center">
 </div>
