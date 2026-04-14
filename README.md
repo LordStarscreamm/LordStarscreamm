@@ -8,6 +8,9 @@
     <img src="https://static.wikia.nocookie.net/danganronpa/images/0/03/Danganronpa_2_Island_Mode_Kazuichi_Soda_Pixel_Icon_%283%29.gif/revision/latest?cb=20170828172337">
 </div>
 
+<div align="center">
+  <img src="https://64.media.tumblr.com/e6c2fde926713a65ef217fef1d3e631f/a437dd2e1bf39a09-28/s1280x1920/3b0e51fa9f18c97eda522563b6771be8e56e40e2.pnj">
+</div>
 ## ABOUT ME !!
 Hello, I'm Starscream! I'm a HUGE Kazuichi fan, im also into Transformers, Phighting and Minecraft!!
 I'm 18 years old and im happily taken by my boyfriend, [Medkit ^_^!](https://github.com/Meddeer)
@@ -46,10 +49,25 @@ additionally, if you're one of those toxic non-sharer selfshippers, or like to g
 
 Also, i can be a bit dense, so don't be afraid to tell me if i make you uncomfortable! I know i make some sexual jokes so if that makes you uncomfortable, let me know!! 
 
+<div align="center">
+  <img src="https://64.media.tumblr.com/8627f18c3d83bc8cdc6e6bcfcc47185d/a437dd2e1bf39a09-ed/s250x400/38652fb38d1ff96beb7381c1c08845f8bbe085b9.pnj">  
+  <img src="https://64.media.tumblr.com/fcf72b38011e948f817e5462a448931e/a437dd2e1bf39a09-d5/s250x400/a13daae387eaef5bc7ff50a9216717fcf6e9438c.pnj">
+  <img src="https://64.media.tumblr.com/397b72d30995a861b9dcf0888bede8cd/a437dd2e1bf39a09-f2/s250x400/8bc0bc72b55b0ab62bc34b081dc9c688f3d29a9d.pnj">
+  <img src="https://64.media.tumblr.com/027b23ccd5a714cf4c12eed491211d23/33d9688dfa8604ab-d3/s100x200/63375c7e8324fc4fe8525c4f4b9f1bc9e930d0b8.webp">
+
+  <img src="https://64.media.tumblr.com/439a5769da3544e2dffdf6b3324997a6/190dfee7802aaa18-1e/s500x750/548ab9ebfece25728e8e6979352a5f3e63c9660f.pnj">
+</div>
+
 
 <div align="center">
   <img src="https://64.media.tumblr.com/8c64d720c32e18308135edb858106831/1e688ba14d189b26-af/s2048x3072/e46fa7b6a0debcf0eb9c5b886d45510b3133b47d.pnj">
 </div>
 
-
 let me tell u somethin bout a friendof ours name jimmy a major wise guy and a capowitha gambini but when he foudndout that theyd bewacking uncle cheech he take theboss he threw him from the 19 floor suite wasnt mucha long till the mobba wants him dead so jimmy had to go and talka to all the feds the feds they say they had to go and use him as a pawn so he ratted out his friewnds and moved2 suskachuwan FUGGET ABOUT IT! FUGGET ABOUUUTEETT OHH FUGGET ABOUT ETT
+<div align="right">
+  I need you, medkit.
+  <img src="https://64.media.tumblr.com/f46251615c4dc89ca2a32108b6876fcb/5552b38bb74293a8-37/s400x600/98c04601338a18dc470ae999aa4be0ff477f4d5c.pnj">
+</div>
+
+<div align="center">
+</div>
