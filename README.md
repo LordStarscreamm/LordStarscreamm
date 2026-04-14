@@ -67,13 +67,14 @@ Also, i can be a bit dense, so don't be afraid to tell me if i make you uncomfor
 </div>
 
 let me tell u somethin bout a friendof ours name jimmy a major wise guy and a capowitha gambini but when he foudndout that theyd bewacking uncle cheech he take theboss he threw him from the 19 floor suite wasnt mucha long till the mobba wants him dead so jimmy had to go and talka to all the feds the feds they say they had to go and use him as a pawn so he ratted out his friewnds and moved2 suskachuwan FUGGET ABOUT IT! FUGGET ABOUUUTEETT OHH FUGGET ABOUT ETT
-<div align="right">
-  <img src="https://64.media.tumblr.com/f46251615c4dc89ca2a32108b6876fcb/5552b38bb74293a8-37/s400x600/98c04601338a18dc470ae999aa4be0ff477f4d5c.pnj">
-   I need you, medkit.
-</div>
 
 <div align="center">
 <img src="https://s6.ezgif.com/tmp/ezgif-6f9edfb5774c51d3.gif">
+</div>
+
+<div align="right">
+   I need you, medkit.
+  <img src="https://64.media.tumblr.com/f46251615c4dc89ca2a32108b6876fcb/5552b38bb74293a8-37/s400x600/98c04601338a18dc470ae999aa4be0ff477f4d5c.pnj">
 </div>
 
 <div align="center">
