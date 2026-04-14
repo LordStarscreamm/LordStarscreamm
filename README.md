@@ -11,7 +11,9 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/e6c2fde926713a65ef217fef1d3e631f/a437dd2e1bf39a09-28/s1280x1920/3b0e51fa9f18c97eda522563b6771be8e56e40e2.pnj">
 </div>
+
 ## ABOUT ME !!
+
 Hello, I'm Starscream! I'm a HUGE Kazuichi fan, im also into Transformers, Phighting and Minecraft!!
 I'm 18 years old and im happily taken by my boyfriend, [Medkit ^_^!](https://github.com/Meddeer)
 
