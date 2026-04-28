@@ -34,7 +34,7 @@ Also, usually i'm offtab, so just whisper to me and ill probably come back! I'm 
 
 I will probably hide you if you make me uncomfortable, this can be for like 15 minutes or a day, but if I don't like someone, i'll very likely perma-hide!
 
-Please make sure to check out my [Strawpage](https://emperorstarscream.straw.page) and my other socials which are linked to this profile!!
+Please make sure to check out my [Strawpage](https://emperorstarscream.straw.page/githubpage) and my other socials which are linked to this profile!!
 
 PLEASEE interact with me if you like: Kazuichi, Danganronpa, Kuzusouda, Komahina, Kuzusoudam, (or really any kazuichi ship), Starscream, Transformers, Phighting, or Medhammer, as those are my main fandoms!!
 
