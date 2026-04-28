@@ -23,8 +23,7 @@ I'm rather shy, and I can be a bit avoidant at times, but please talk to me and 
 You can usually see me as these ponies!!
 
 <div align="center">
-<img width="309" height="326" alt="image" src="https://github.com/user-attachments/assets/bb7e68b0-5677-439d-935f-9fe3b929f0ee" />
-<img width="293" height="330" alt="image" src="https://github.com/user-attachments/assets/a40c9ad8-d295-4bfd-84e8-ea6def28343d" />
+<img width="309" height="326" alt="image" src="https://github.com/user-attachments/assets/bb7e68b0-5677-439d-935f-9fe3b929f0ee" /><img width="293" height="330" alt="image" src="https://github.com/user-attachments/assets/a40c9ad8-d295-4bfd-84e8-ea6def28343d" />
 </div>
 
 ## BFYI
